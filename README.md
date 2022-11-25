@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @welinkusuma
 - 👀 I’m interested in writing, public speaking, designing, and video editing
 - 🌱 I’m currently learning content writing and designing.
-- 💞️ I’m looking to collaborate on writing, public speaking, designing, and video editing
+- 💞️ I’m looking to collaborate on writing, public speaking, designing, and video editing.
 - 📫 How to reach me @welinkusuma
 
 <!---
